@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **3388tjdgus@naver.com**
 
-<h3 align="left">Connect with me: **3388tjdgus@naver.com** </h3>
 <p align="left">
 </p>
 <p align="left">
